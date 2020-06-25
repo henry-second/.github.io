@@ -12,3 +12,8 @@ Hey, was willste?
 * intelligent
 * lacht oft
 * kann singen
+
+Zelig sagt:
+> Ich habe es schrecklich eilig und muss zur Uni
+> Ich leite dort einen Onaniekurs 
+> die fangen sonst ohne mich an
