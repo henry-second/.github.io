@@ -17,3 +17,5 @@ Zelig sagt:
 > Ich habe es schrecklich eilig und muss zur Uni
 > Ich leite dort einen Onaniekurs 
 > die fangen sonst ohne mich an
+
+<img src="http://cineblog.net/wp-content/uploads/ZELIG-Mia-Farrow-Woody-Allen-en-Zelig.jpg"/>
